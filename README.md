@@ -11,6 +11,7 @@ I know the judge can't literally knock on my door, but if it could, the kettle
 would already be on.
 
 Entry for the make.fun bounty: https://make.fun/bounty/u-shino-convince-the-ai-judge-to-visit-your-house-a-84092aee
+Referral: https://make.fun/r/spg1d5j0
 
 ## How it works
 
